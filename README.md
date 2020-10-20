@@ -99,6 +99,7 @@
 
 - [Forest Healing Foundation](https://www.foresthealingsrilanka.org/)
 - [Thuru](https://thuru.lk/)
+-[Srimalplantation](https://www.srimalplantation.com/adopt-a-tree/)
 
 
 ## Taiwan
